@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Twg-David
 - 👀 I’m interested in learning the basics
 - 🌱 I’m currently learning the basics 
-- 💞️ I’m looking to collaborate on amything 
+- 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me Twg_David on insta 
 
 <!---
